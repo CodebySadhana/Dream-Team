@@ -1,3 +1,0 @@
-# Sundar Pichai
-
-Prioritization Specialist

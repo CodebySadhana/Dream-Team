@@ -1,3 +1,0 @@
-# Patrick Collison
-
-Operations Supervisor

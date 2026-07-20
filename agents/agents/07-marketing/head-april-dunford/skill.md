@@ -1,3 +1,0 @@
-# April Dunford
-
-Marketing Supervisor

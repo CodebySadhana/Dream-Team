@@ -1,3 +1,0 @@
-# Dylan Field
-
-Design Supervisor

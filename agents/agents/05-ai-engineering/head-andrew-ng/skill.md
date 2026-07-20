@@ -1,3 +1,0 @@
-# Andrew Ng
-
-AI Supervisor

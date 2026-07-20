@@ -1,3 +1,0 @@
-# Warren Buffett
-
-Finance Supervisor
